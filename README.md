@@ -1,3 +1,9 @@
 # netive-skin-folder
 skins
 # [turbo sznyt 2025](https://drive.google.com/file/d/1Bi9dpDnkIbsMPHPcVzv-SouFMgNqmNFd/view?usp=sharing)
+# [#tlqkf](https://drive.google.com/file/d/1e5tnoAWQfEVTewjodIo2YsOVaxqaHQrK/view?usp=sharing)
+# [MonkoGlass](https://drive.google.com/file/d/1fHd-D3o7K7D7dgQe1X6ZdLixW7DOqYLC/view?usp=sharing)
+# [Aristia(edit)+trail](https://drive.google.com/file/d/1bn3JxvsdJrEL30l4fbQbY1uSV5jIPjaT/view?usp=sharing)
+# [Moyai Balls](https://drive.google.com/file/d/13H-brkGM31igziiqiTxs5yUCoiUer3n4/view?usp=sharing)
+# [plasma rd](https://drive.google.com/file/d/1VSqURdLJtvt9n62Y9O6uVemmcTWf6Bwi/view?usp=sharing)
+# [Rafis +HDDT](https://drive.google.com/file/d/1ZYc9o7pp1DYfuW0BTj2y4D9R29SRXo8F/view?usp=sharing)
