@@ -7,3 +7,4 @@
 # [Moyai Balls](https://drive.google.com/file/d/13H-brkGM31igziiqiTxs5yUCoiUer3n4/view?usp=sharing)
 # [plasma rd](https://drive.google.com/file/d/1VSqURdLJtvt9n62Y9O6uVemmcTWf6Bwi/view?usp=sharing)
 # [Rafis +HDDT](https://drive.google.com/file/d/1ZYc9o7pp1DYfuW0BTj2y4D9R29SRXo8F/view?usp=sharing)
+![screenshot110](https://github.com/mateoosh22/ss/blob/main/screenshot110.jpg?raw=true)
